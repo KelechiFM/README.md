@@ -50,4 +50,4 @@ Developing AgroLink Hub – a digital agriculture innovation
 
 🔗 GitHub: https://github.com/KelechiFM
 
-💼 LinkedIn: https://wwww.linkedin.com/in/faith-mmesoma-kelechi
+💼 LinkedIn: https://www.linkedin.com/in/faith-mmesoma-kelechi
